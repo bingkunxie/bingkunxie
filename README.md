@@ -1,5 +1,5 @@
-Hi there! My name is Bingkun Xie, a junior student of the University of Minnesota Twin Cities with a major in Computer Science B.A. I use he/him pronouns.
-I'm also an IBO of Amway, ask me about the oppotunity to be my business partner!
+Hi there🤗! My name is Bingkun Xie, a junior student of the University of Minnesota Twin Cities with a major in Computer Science B.A. I use he/him pronouns.
+I'm also an IBO of Amway, ask me about the oppotunity to be my business partner!🤩
 <!--
 **bingkunxie/bingkunxie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
